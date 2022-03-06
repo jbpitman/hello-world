@@ -6,11 +6,9 @@ A place to store ideas, resources and share with other
 3. We have one daughter Jeannine [^1], who is married to Omar Sow.
 4. My husband and I spend alot of our time as caregivers for my mother and father
 5. I am very interested in Data Sicence, particularly Visualizations
-
-[^1: Jeannine is 33 years old and lives in Long Beach California
-
+[^1]: Jeannine is 33 years old and lives in Long Beach California
+#**What I love**
 I==LOVE== God, my family and my life ! :joy:
-
 Happy
 :gettingup every day 
 ~~I can't ~~
