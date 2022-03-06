@@ -8,7 +8,7 @@ A place to store ideas, resources and share with other
 5. I am very interested in Data Sicence, particularly Visualizations
 [^1]: Jeannine is 33 years old and lives in Long Beach California
 -------------------------------------------
-#**What I love**##
+#**What I love**
 I==LOVE== God, my family and my life ! :joy:
 Happy
 :gettingup every day 
